@@ -1,3 +1,3 @@
 # Lab 4
-Name:\
-Help Received:
+Name: Trenton O'Neal
+Help Received: I received help from nobody
